@@ -1,1 +1,1 @@
-Today is june twenty two
+Today is june 22
